@@ -1,1 +1,1 @@
-This are projects are all repeats!
+This projects are all repeats!
